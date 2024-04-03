@@ -13,6 +13,8 @@
 
 - 📫 How to reach me **manuel.lehrer.official@gmail.com**
 
+- 📈 I make YouTube videos about **Investing / Finance**
+
 - ♟️ I love to **teach and play chess**
 
 <h3 align="left">Connect with me:</h3>
