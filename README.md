@@ -15,9 +15,9 @@
 
 - 📈 I make YouTube videos about **Investing / Finance**
 
-- ✍️ My Blog: **https://blog-for-deployment-pjaf.onrender.com**
-
 - ♟️ I love to **teach and play chess**
+
+- ✍️ My Blog: **https://blog-for-deployment-pjaf.onrender.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
